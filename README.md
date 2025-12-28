@@ -20,4 +20,6 @@ Complete abstinence from alcohol, tobacco, drugs, and other harmful behaviors to
 • Health-Conscious Praxis
 Commitment to physical well-being through diet, exercise, and conscious care of the body.
 
-This work is © 2025 Mihalachi Ivan [krest]. Licensed under Creative Commons Attribution 4.0 International (CC BY 4.0). You may share, copy, or adapt this work with proper credit.
+Created by Mihalachi Ivan [krest], 2025-12-28  
+Licensed under Creative Commons Attribution 4.0 International (CC BY 4.0)
+
